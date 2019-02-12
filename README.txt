@@ -1,4 +1,4 @@
-The target "My", "Mine", "I", and other pronounces alike are refering to the person Red Cocoon.
+The target "My", "Mine", "I", and other pronounces alike are refering to the person Red Cocoon (https://www.youtube.com/channel/UCicNK1sERzATAnk3RpRH1dw).
 
 1) You may not copy or republish this datapack and/or any files that are associated with it without my permission.
 
